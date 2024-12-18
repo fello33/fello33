@@ -1,4 +1,4 @@
-# Hello  
+# 🖐🖐🖐 
 **CEO at reAI Lab LLC | AI & Machine Learning Enthusiast | San Diego, CA**
 
 As the CEO of **reAI Lab LLC**, I'm focused on driving innovation in the field of **Artificial Intelligence**, **Machine Learning**, and **AI-driven solutions**. With over 15 years of experience in technology leadership, I'm passionate about creating scalable and impactful AI products that solve real-world problems. My mission is to harness the power of AI to transform industries and empower businesses.
